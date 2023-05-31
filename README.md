@@ -1,2 +1,0 @@
-# NaziVSHumanity
-discuasao sobre nazismo 
